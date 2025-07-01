@@ -1,1 +1,1 @@
-# Nietzsche
+# Study
